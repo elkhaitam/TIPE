@@ -16,7 +16,10 @@ Requilleur
 Rapidité
 Quilles
 Distributeur
- 
+
+![brunswick 1](https://github.com/user-attachments/assets/f1dc32ce-0a91-4b6f-aed5-c0bd2ee8e57c)
+
+
 # Bibliographie commentée
 Le bowling est une activité de loisir, mais aussi une discipline sportive, plus précisément, il s’ agit d’un jeu d’intérieur dans lequel les joueurs lancent des boules sur une piste ou allée pour tenter de renverser des quilles. Le Bowling est l’un des sports les plus populaires dans le monde, et son image est très utilisée par les publicitaires.[1]
 Les jeux de quilles font partie des premiers jeux que l’homme a créés, ils existent depuis des milliers d’années, remontant à l’époque de l’Egypte ancienne.[2] Le Bowling moderne s'est répandu aux États-Unis au 19ème siècle, gagnant en popularité parmi les travailleurs de l'industrie. Dans les années 1930, les brasseries ont sponsorisé des équipes professionnelles pour promouvoir leurs marques, contribuant à la croissance du sport. Les ligues organisées ont émergé, favorisant la participation récréative. Le Bowling a connu une forte croissance au 20ème siècle, marquée par la création du Congrès International Féminin de Bowling dans les années 1950, favorisant la participation active des femmes.[3] Aujourd’hui le Bowling est pratique dans le monde entier, avec des compétitions de niveau professionnel et amateur organisées régulièrement.
